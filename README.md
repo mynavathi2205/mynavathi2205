@@ -37,5 +37,5 @@ To secure a challenging position in the IT industry where I can apply my skills 
 ---
 
 ## 📞 Contact
-📧 yourmail@gmail.com  
-📱 9876543210
+📧 mynavathi2205@gmail.com  
+📱 9025835497
